@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do F4fim 👍
+## Bem-vindo(a) ao perfil de Miguel 👍
 
 <div>
   <a href="https://github.com/F4fim">
